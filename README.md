@@ -1,0 +1,2 @@
+# https-discord.com-api-webhooks-781179603703693373-LWfp9sciSGYP3f8ayzcFJl1Zr6FI4kLM989FTOHCXcXAURrS
+ЧЛЕНСКИЕ ВЗНОСЫ
